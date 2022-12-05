@@ -1,1 +1,0 @@
-# wipro_skt
